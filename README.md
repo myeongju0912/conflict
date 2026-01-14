@@ -8,4 +8,4 @@ ghldnjsrkdlq dhksfy
 
 
 
-리모트에서 수정했습니다.
+리모트에서 w재수정했습니다.
